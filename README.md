@@ -10,5 +10,5 @@
 
 #### Ways To Connect And Chat ! 
 - [Instagram](https://www.instagram.com/khushal__nyk/) 
-- [Gmail](https://www.gmail.com/) - kushalnaik.me@gmail.com
+- [Gmail](https://www.gmail.com/) - *kushalnaik.me@gmail.com*
 - [Discord](https://discordapp.com/) - *Khushal#5827*
