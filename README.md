@@ -9,4 +9,4 @@
 
 
 #### Ways To Connect And Chat ! 
-[Instagram](https://www.instagram.com/khushal__nyk/) | [Discord](https://discordapp.com/users/923094703791046756/) *Khushal#5827*
+[Instagram](https://www.instagram.com/khushal__nyk/) | [Discord](https://discordapp.com/users/923094703791046756/) - *Khushal#5827*
