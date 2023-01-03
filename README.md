@@ -3,7 +3,7 @@
 >I am khushal Naik. 
 - 🌱 A linux & Open Source enthusiast.
 - 🍁 Love customising and ricing. 😏 **I use arch btw...**
-- 🔭 I’m currently learning about **Cross-Platform App Development.**
+- 🔭 I’m currently learning about **Frontend Responsive Website Designing.**
 
 
 
